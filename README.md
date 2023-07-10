@@ -12,7 +12,7 @@
 
 🤝 Looking to collaborate on Open-Source Contribution
 
-📫 How to reach me: https://www.linkedin.com/in/bhavna-mogha-851246207/
+📫 How to reach me: https://linktr.ee/Bhavna_Mogha
 
 ⚡ Fun fact: I Like Coding!!
 
