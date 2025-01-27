@@ -8,7 +8,7 @@
 
 👩🏻‍💻 Education: CS Student.
 
-🔭 Full Stack Web Developer .
+🔭 Software Engineer .
 
 🤝 Looking to collaborate on Open-Source Contribution
 
